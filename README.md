@@ -2,5 +2,6 @@
 
 Aqui será apenas destinado a colocar os vídeos da comprovação das duas partes feitas:
 
-**link para a Parte 1:** 
-**link para a Parte 2:**# Ardu-no_1
+**link para a Parte 1:** https://youtube.com/shorts/T5jqJTkkm8o?feature=share
+
+**link para a Parte 2:**
